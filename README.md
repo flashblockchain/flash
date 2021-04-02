@@ -14,3 +14,4 @@
 - 🌱 I’m currently smart contracts 
 - 💞️ I’m looking to collaborate this project
 - 📫 Reach me drop me a line my flashblockchain📫gmail.com 
+- Discord - https://discord.com/channels/827130309819891722/827134355935199232
